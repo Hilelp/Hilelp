@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hilelp
+- 👀 I’m interested in learning python , CSS , javascript , HTML
+- 🌱 I’m currently learning python in day 0 to 1
+- 💞️ I’m looking to collaborate on everything i know
+- 📫 How to reach me ... study , study , study , study <3
